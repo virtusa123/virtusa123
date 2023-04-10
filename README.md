@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **vishnusai160@gmail.com**
 
-- 📄 Know about my experiences : [https://1drv.ms/b/s!AlYznY89YdIggQGiXfV2QnZ89Geu?e=XSkrNI] (Vishnu Sai Koneti Resume)
+- 📄 Know about my experiences : [Vishnu Sai Koneti Resume](https://1drv.ms/b/s!AlYznY89YdIggQGiXfV2QnZ89Geu?e=XSkrNI)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
